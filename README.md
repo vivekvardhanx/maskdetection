@@ -6,3 +6,7 @@ mask detection
 
 https://github.com/user-attachments/assets/ba4e081a-9305-4cf9-ab96-49e5b4ab4bcd
 
+
+
+https://github.com/user-attachments/assets/ae0238b9-e82b-49fd-97bf-0fdd7c022214
+
