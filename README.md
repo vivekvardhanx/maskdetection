@@ -1,2 +1,8 @@
-# maskdetection![WhatsApp Image 2025-07-20 at 01 18 43_9a3efd68](https://github.com/user-attachments/assets/38cf7995-a0ec-41b1-b7e3-6766de021205)
-![WhatsApp Image 2025-07-20 at 01 18 44_8455080a](https://github.com/user-attachments/assets/d663eb98-4304-4c1d-a546-2b6c899ececb)
+mask detection
+![WhatsApp Image 2025-07-20 at 01 18 43_9a3efd68](https://github.com/user-attachments/assets/0af5132c-dd4f-4255-a79f-346b9d0028d3)
+![WhatsApp Image 2025-07-20 at 01 18 44_8455080a](https://github.com/user-attachments/assets/2852afa4-a21a-4f1a-8010-810deaf1741f)
+![WhatsApp Image 2025-07-20 at 01 18 44_9081afcc](https://github.com/user-attachments/assets/56010589-3cea-4ef4-b25a-a9d16adec2fb)
+
+
+https://github.com/user-attachments/assets/ba4e081a-9305-4cf9-ab96-49e5b4ab4bcd
+
